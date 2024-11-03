@@ -8,9 +8,6 @@
 
 - 👯 I’m looking to collaborate on **projects which start with passion**
 
-- 📫 How to reach me **marimexashishvili8@gmail.com**
-
-
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
